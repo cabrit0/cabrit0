@@ -34,4 +34,4 @@ Feel free to contact me to discuss potential opportunities or to see more of my 
 
 Email: cabrit0o.dev@gmail.com 📧 <br>
 LinkedIn: (https://www.linkedin.com/in/cabrit0/) 💼 <br>
-Portfolio: (https://cabrit0.github.io/portfolio/) 🌐
+Portfolio: (https://portfolio2-0-o4kz.onrender.com/) 🌐
